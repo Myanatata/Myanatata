@@ -1,0 +1,6 @@
+- 🥭 Hi, I’m Myanatata!!!!!
+- 🧡 I’m interested in a lot. A lot.
+- 💮 I’m currently learning... Everything. I love learning!!
+- 💞️ I’m looking to collaborate on whatever I feel like collaborating on.
+- 📱 You can reach me via Bluesky: @myanatata.bsky.social.
+- 🥭 Fun fact: I love mangos. I also love mangos. Oh, also, I'm a mango lover.
